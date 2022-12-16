@@ -7,3 +7,14 @@ same. He would still be what he was based on his roots, on his start. He would h
 Pham got urinated on (defeated) and had to go through changes and corrections. Richard Pham had to give up his last name, and replace it with Ramirez.
 
 Thank you world for making Richard Ramirez the great man that he is today.
+
+
+# A Multiple-Choice Question
+
+Is this:
+- disinformation
+- misinformation
+- sarcasm
+- all of the above
+- depends on perspective
+?
