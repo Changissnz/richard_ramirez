@@ -18,3 +18,6 @@ Is this:
 - all of the above
 - depends on perspective
 ?
+
+# An Answer
+- Sarcasm.
